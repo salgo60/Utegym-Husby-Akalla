@@ -1,4 +1,5 @@
-# Utegym-Husby-Akalla
+# Utegym-Husby-Akalla   [denna sida](https://salgo60.github.io/Utegym-Husby-Akalla/)
+
 Utegym Husby Akalla och vad man kan göra med maskinerna 
 
 * [Stockholms stads hitta utegym sida](https://motionera.stockholm/hitta-utegym/utegym/husby-gards-utegym)
@@ -69,6 +70,7 @@ En av de mest tillgängliga maskinerna:
 1. Håll ryggen upprätt
 
 👉 Små rörelser räcker – det viktiga är att komma igång
+
 ![Cykelträning vid bänk](https://upload.wikimedia.org/wikipedia/commons/3/37/Studsmatta_Husby_g%C3%A5rd_utegym_2025%29_%28cropped%29.jpg?_=20260410104249)
 
 ### Studsmatta
@@ -128,13 +130,147 @@ Rolig och effektiv träning:
 
 👉 Börja lugnt – det blir jobbigt snabbt!
 
+**👵 Tips för nybörjare / pensionärer**
+* Gör små, långsamma rörelser
+* Testa 10–20 sekunder åt gången
+* Fokusera på rytm istället för kraft
+* Vila ofta
+
+**🏃 För dig som vill ha mer utmaning**
+* Snabba vågor (tempo!)
+* Slå repen hårt i marken
+* Intervaller (20–30 sek arbete / vila)
+* Kombinera med knäböj
+
 ![Battle rope](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Husby_utegym_2026_april_04.jpg/3840px-Husby_utegym_2026_april_04.jpg)
 
 ### Benpress
+**💪 Vad tränar du?**
+* Lår (framsida)
+* Rumpa
+* Vader
+* Benstyrka generellt
+
+**🦵 Så gör du (enkelt)**
+1. Sätt dig på sitsen bakom maskinen
+1. Placera fötterna på plattan
+1. Tryck plattan framåt genom att sträcka benen
+1. Gå långsamt tillbaka
+
+**⚠️ Vanliga misstag**
+1. För tung vikt direkt
+1. Sträcka ut benen helt “låst läge”
+Släppa tillbaka vikten för snabbt
+Fötterna för högt eller lågt placerade
+
+**👵 Tips för nybörjare / pensionärer**
+* Börja utan extra vikter (eller mycket lätt)
+* Gör små rörelser först
+* 5–10 lugna repetitioner räcker
+* Känn efter i knän och höfter
+
+**🏃 För dig som vill ha mer utmaning**
+* Lägg på viktskivor
+* Gör 10–15 repetitioner
+* Testa enbenspress (försiktigt!)
+* Kör långsamma repetitioner för mer effekt
+
+**❤️ Varför är den viktig?**
+En av de mest effektiva maskinerna i hela utegymmet:
+
+* Bygger styrka i benen
+* Viktigt för att kunna gå i trappor och resa sig
+* Bra även för äldre – om den används rätt
+
+👉 Håll ryggen mot stödet hela tiden
 ![Benpress](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b7/Husby_utegym_2026_april_03.jpg/3840px-Husby_utegym_2026_april_03.jpg)
+
 ### Sittande rodd
+
+**💪 Vad tränar du?**
+* Rygg (övre och mitten)
+* Axlar (bakre)
+* Armar
+* Hållning
+
+**🚣 Så gör du (enkelt)**
+1. Sätt dig på sitsen
+1. Placera fötterna stadigt i marken eller på stöd
+1. Ta tag i handtagen
+1. Dra handtagen mot kroppen
+1. Släpp tillbaka långsamt
+
+👉 Tänk “dra ihop skulderbladen”
+
+**⚠️ Vanliga misstag**
+* Dra med bara armarna (inte ryggen)
+* Runda ryggen
+* Släppa tillbaka vikten för snabbt
+* För tung vikt direkt
+
+**👵 Tips för nybörjare / pensionärer**
+* Börja med låg vikt eller utan extra vikter
+* Dra lugnt och kontrollerat
+* 5–10 repetitioner räcker
+* Fokusera på hållning
+
+**🏃 För dig som vill ha mer utmaning**
+* Lägg på viktskivor
+* Gör 10–15 repetitioner
+* Håll emot långsamt på vägen tillbaka
+* Pausa kort när handtagen är nära kroppen
+
+**❤️ Varför är den viktig?**
+En av de bästa maskinerna för:
+
+* Stark rygg
+* Bättre hållning
+* Motverka “framåtböjd” kropp (mobil/dator)
+
+
 ![Sittande rodd](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/Husby_utegym_2026_april_01.jpg/3840px-Husby_utegym_2026_april_01.jpg)
+
 ### Abdominal crunch för mage
+
+**💪 Vad tränar du?**
+* Mage (framsida)
+* Bålstabilitet
+* Hållning
+
+**🧘 Så gör du (enkelt)**
+1. Sätt dig på sitsen
+1. Placera ryggen mot stödet
+1. Ta tag i handtagen
+1. Böj överkroppen framåt (som en crunch)
+1. Gå långsamt tillbaka
+
+👉 Tänk “rulla ihop magen” – inte dra med armarna
+
+**⚠️ Vanliga misstag**
+* Dra med armarna istället för magen
+* För stora rörelser
+* Släppa tillbaka vikten snabbt
+* För tung vikt direkt
+
+**👵 Tips för nybörjare / pensionärer**
+* Börja utan extra vikter
+* Gör små rörelser
+* 5–10 repetitioner räcker
+* Fokusera på kontakt i magen
+
+**🏃 För dig som vill ha mer utmaning**
+* Lägg på viktskivor
+* Gör 10–15 repetitioner
+* Håll emot långsamt på vägen tillbaka
+* Pausa kort i “ihopdraget läge”
+
+**❤️ Varför är den viktig?**
+
+Stark bål ger:
+
+* Bättre balans
+* Mindre ryggproblem
+* Stabilare kropp i vardagen
 
 ![Abdominal crunch för mage](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Husby_utegym_2026_april_02.jpg/3840px-Husby_utegym_2026_april_02.jpg)
 
