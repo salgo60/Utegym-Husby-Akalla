@@ -236,7 +236,7 @@ En av de bästa maskinerna för:
 
 ![Sittande rodd](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/Husby_utegym_2026_april_01.jpg/3840px-Husby_utegym_2026_april_01.jpg)
 
-### 8. Abdominal crunch för mage
+### 8. Abdominal crunch för mage - Magböj
 
 **💪 Vad tränar du?**
 * Mage (framsida)
