@@ -7,7 +7,7 @@ Utegym Husby Akalla och vad man kan göra med maskinerna
 
 ![Tavla](https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Husby_utegym_2026_april_05.jpg/3840px-Husby_utegym_2026_april_05.jpg)
 
-### Balansbana
+### 6. Balansbana
 
 **💪 Vad tränar du?**
 * Balans
@@ -43,7 +43,7 @@ Finns fristående cykel och sitta på bänk
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/09/Husby_utegym_2026_april_06.jpg/1920px-Husby_utegym_2026_april_06.jpg?_=20260405092920)
 
 
-### Fristående cykel
+#### 1. Fristående cykel
 **💪 Vad tränar du?**
 * Kondition
 * Ben (lår och vader)
@@ -68,7 +68,7 @@ En av de mest tillgängliga maskinerna:
 * Enkel att förstå – men används ofta för lite
 👉 Andas lugnt – du ska kunna prata samtidigt
 
-#### Cykelträning vid bänk
+#### 2. Cykelträning vid bänk
 🚴 Så gör du (enkelt)
 1. Sätt dig på bänken
 1. Placera fötterna på pedalerna
@@ -79,7 +79,7 @@ En av de mest tillgängliga maskinerna:
 
 ![Cykelträning vid bänk](https://upload.wikimedia.org/wikipedia/commons/3/37/Studsmatta_Husby_g%C3%A5rd_utegym_2025%29_%28cropped%29.jpg?_=20260410104249)
 
-### Studsmatta
+### 3. Studsmatta
 
 💪 Vad tränar du?
 * Balans
@@ -121,7 +121,7 @@ Rolig och effektiv träning:
 
 ![Studsmatta](https://upload.wikimedia.org/wikipedia/commons/0/0f/Studsmatta_Husby_g%C3%A5rd_utegym_2025%29.jpg?_=20260410104034)
 
-### Battle rope
+### 7. Battle rope
 **💪 Vad tränar du?**
 * Armar och axlar
 * Bål (mage och rygg)
@@ -150,7 +150,7 @@ Rolig och effektiv träning:
 
 ![Battle rope](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Husby_utegym_2026_april_04.jpg/3840px-Husby_utegym_2026_april_04.jpg)
 
-### Benpress
+### 10. Benpress
 **💪 Vad tränar du?**
 * Lår (framsida)
 * Rumpa
@@ -191,7 +191,7 @@ En av de mest effektiva maskinerna i hela utegymmet:
 👉 Håll ryggen mot stödet hela tiden
 ![Benpress](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b7/Husby_utegym_2026_april_03.jpg/3840px-Husby_utegym_2026_april_03.jpg)
 
-### Sittande rodd
+### 9. Sittande rodd
 
 **💪 Vad tränar du?**
 * Rygg (övre och mitten)
@@ -236,7 +236,7 @@ En av de bästa maskinerna för:
 
 ![Sittande rodd](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/Husby_utegym_2026_april_01.jpg/3840px-Husby_utegym_2026_april_01.jpg)
 
-### Abdominal crunch för mage
+### 8. Abdominal crunch för mage
 
 **💪 Vad tränar du?**
 * Mage (framsida)
