@@ -7,6 +7,33 @@ Utegym Husby Akalla och vad man kan göra med maskinerna
 ![Tavla](https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Husby_utegym_2026_april_05.jpg/3840px-Husby_utegym_2026_april_05.jpg)
 
 ### Balansbana
+
+**💪 Vad tränar du?**
+* Balans
+* Koordination
+* Ben och fotleder
+* Stabilitet (viktigt för att minska fallrisk)
+
+**🚶 Så gör du (enkelt)**
+1. Kliv upp på banan
+1. Gå långsamt framåt
+1. Håll blicken framåt (inte ner i marken)
+1. Använd armarna för balans
+
+👉 Ta det lugnt – det är inte en tävling
+
+**🏃 För dig som vill ha mer utmaning**
+* Gå baklänges
+* Stanna och balansera på ett ben
+* Blunda korta stunder (endast om du känner dig trygg)
+
+**❤️ Varför är den viktig?**
+Balans är en färskvara.
+Den här typen av träning är en av de mest effektiva för att:
+
+* minska risken för fall
+* behålla självständighet högre upp i åldrarna
+
 ![Husby gård outdoor gym](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Husby_g%C3%A5rd_outdoor_gym_%28cropped%29.jpg/1920px-Husby_g%C3%A5rd_outdoor_gym_%28cropped%29.jpg?_=20260410102202)
 
 ### Träningscykel
