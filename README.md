@@ -37,7 +37,13 @@ Den här typen av träning är en av de mest effektiva för att:
 
 ![Husby gård outdoor gym](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Husby_g%C3%A5rd_outdoor_gym_%28cropped%29.jpg/1920px-Husby_g%C3%A5rd_outdoor_gym_%28cropped%29.jpg?_=20260410102202)
 
-### Träningscykel
+### Träningscyklar
+Finns fristående cykel och sitta på bänk
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/09/Husby_utegym_2026_april_06.jpg/1920px-Husby_utegym_2026_april_06.jpg?_=20260405092920)
+
+
+### Fristående cykel
 **💪 Vad tränar du?**
 * Kondition
 * Ben (lår och vader)
@@ -62,7 +68,7 @@ En av de mest tillgängliga maskinerna:
 * Enkel att förstå – men används ofta för lite
 👉 Andas lugnt – du ska kunna prata samtidigt
 
-### Cykelträning vid bänk
+#### Cykelträning vid bänk
 🚴 Så gör du (enkelt)
 1. Sätt dig på bänken
 1. Placera fötterna på pedalerna
