@@ -3,6 +3,7 @@
 Utegym Husby Akalla och vad man kan göra med maskinerna 
 
 * [Stockholms stads hitta utegym sida](https://motionera.stockholm/hitta-utegym/utegym/husby-gards-utegym)
+* maskiner från [www.iveoutdoor.com](https://www.iveoutdoor.com/en/ive/devices/)
 * [Fria bilder på utegymmet](https://commons.wikimedia.org/wiki/Category:Husby_g%C3%A5rd_utegym)
 
 ![Tavla](https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Husby_utegym_2026_april_05.jpg/3840px-Husby_utegym_2026_april_05.jpg)
@@ -237,6 +238,8 @@ En av de bästa maskinerna för:
 ![Sittande rodd](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/Husby_utegym_2026_april_01.jpg/3840px-Husby_utegym_2026_april_01.jpg)
 
 ### 8. Abdominal crunch för mage - Magböj
+* [![Watch the video](https://img.youtube.com/vi/ygDYG9aOruM/0.jpg)](https://youtu.be/ygDYG9aOruM)
+![](https://www.iveoutdoor.com/wp-content/uploads/2023/02/Tabliczki_EN_Abdominal-Muscle-1-600x2186.png)
 
 **💪 Vad tränar du?**
 * Mage (framsida)
