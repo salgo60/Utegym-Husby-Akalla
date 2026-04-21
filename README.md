@@ -124,7 +124,8 @@ Rolig och effektiv träning:
 
 ### 7. Battle rope
 
-[![Watch the video](https://img.youtube.com/vi/R7qd3Moor-s/0.jpg)](https://www.youtube.com/watch?v=R7qd3Moor-s)
+* [![Se filmen](https://img.youtube.com/vi/R7qd3Moor-s/0.jpg)](https://www.youtube.com/watch?v=R7qd3Moor-s)
+
 **💪 Vad tränar du?**
 * Armar och axlar
 * Bål (mage och rygg)
@@ -154,7 +155,7 @@ Rolig och effektiv träning:
 ![Battle rope](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Husby_utegym_2026_april_04.jpg/3840px-Husby_utegym_2026_april_04.jpg)
 
 ### 10. Benpress
-* [![Se filmen](https://youtu.be/nhXi2C95nD8?si=WzxJ62wEMKhuBMEC/0.jpg)](https://youtu.be/nhXi2C95nD8?si=WzxJ62wEMKhuBMEC)
+* [![Se filmen](https://img.youtube.com/vi/nhXi2C95nD8/0.jpg)](https://youtu.be/nhXi2C95nD8?si=WzxJ62wEMKhuBMEC)
 
 **💪 Vad tränar du?**
 * Lår (framsida)
