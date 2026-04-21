@@ -123,6 +123,8 @@ Rolig och effektiv träning:
 ![Studsmatta](https://upload.wikimedia.org/wikipedia/commons/0/0f/Studsmatta_Husby_g%C3%A5rd_utegym_2025%29.jpg?_=20260410104034)
 
 ### 7. Battle rope
+
+[![Watch the video](https://img.youtube.com/vi/R7qd3Moor-s/0.jpg)](https://www.youtube.com/watch?v=R7qd3Moor-s)
 **💪 Vad tränar du?**
 * Armar och axlar
 * Bål (mage och rygg)
@@ -152,6 +154,8 @@ Rolig och effektiv träning:
 ![Battle rope](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Husby_utegym_2026_april_04.jpg/3840px-Husby_utegym_2026_april_04.jpg)
 
 ### 10. Benpress
+* [![Se filmen](https://youtu.be/nhXi2C95nD8?si=WzxJ62wEMKhuBMEC/0.jpg)](https://youtu.be/nhXi2C95nD8?si=WzxJ62wEMKhuBMEC)
+
 **💪 Vad tränar du?**
 * Lår (framsida)
 * Rumpa
@@ -193,6 +197,7 @@ En av de mest effektiva maskinerna i hela utegymmet:
 ![Benpress](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b7/Husby_utegym_2026_april_03.jpg/3840px-Husby_utegym_2026_april_03.jpg)
 
 ### 9. Sittande rodd
+* [![Se filmen](https://img.youtube.com/vi/9bh5Q7F3tS8/0.jpg)](https://youtu.be/9bh5Q7F3tS8)
 
 **💪 Vad tränar du?**
 * Rygg (övre och mitten)
@@ -237,8 +242,8 @@ En av de bästa maskinerna för:
 
 ![Sittande rodd](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/Husby_utegym_2026_april_01.jpg/3840px-Husby_utegym_2026_april_01.jpg)
 
-### 8. Abdominal crunch för mage - Magböj
-* [![Watch the video](https://img.youtube.com/vi/ygDYG9aOruM/0.jpg)](https://youtu.be/ygDYG9aOruM)
+### <del>8</del>. Abdominal crunch för mage - Magböj
+* [![Se filmen](https://img.youtube.com/vi/ygDYG9aOruM/0.jpg)](https://youtu.be/ygDYG9aOruM)
 ![](https://www.iveoutdoor.com/wp-content/uploads/2023/02/Tabliczki_EN_Abdominal-Muscle-1-600x2186.png)
 
 **💪 Vad tränar du?**
