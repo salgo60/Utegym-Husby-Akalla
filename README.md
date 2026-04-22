@@ -125,6 +125,7 @@ Rolig och effektiv träning:
 ### 7. Battle rope
 * [Se filmen](https://www.youtube.com/watch?v=R7qd3Moor-s)
 * [![Se filmen](https://img.youtube.com/vi/R7qd3Moor-s/0.jpg)](https://www.youtube.com/watch?v=R7qd3Moor-s)
+* [Film 2 -  Battle rope - 3 övningar](https://youtu.be/n4Z0VrrGjK0?si=uCfzNemxxOyFqw_r)
 
 **💪 Vad tränar du?**
 * Armar och axlar
