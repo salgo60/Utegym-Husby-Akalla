@@ -203,6 +203,8 @@ En av de mest effektiva maskinerna i hela utegymmet:
 * [Se filmen](https://youtu.be/9bh5Q7F3tS8)
 * [![Se filmen](https://img.youtube.com/vi/9bh5Q7F3tS8/0.jpg)](https://youtu.be/9bh5Q7F3tS8)
 
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Husby_utegym_2026_april_02.jpg/1920px-Husby_utegym_2026_april_02.jpg)
+
 **💪 Vad tränar du?**
 * Rygg (övre och mitten)
 * Axlar (bakre)
@@ -243,8 +245,6 @@ En av de bästa maskinerna för:
 * Bättre hållning
 * Motverka “framåtböjd” kropp (mobil/dator)
 
-
-![Sittande rodd](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/Husby_utegym_2026_april_01.jpg/3840px-Husby_utegym_2026_april_01.jpg)
 
 ### <del>8</del>. Abdominal crunch för mage - Magböj
 * [Se filmen](https://youtu.be/ygDYG9aOruM)
