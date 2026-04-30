@@ -5,8 +5,10 @@ Utegym Husby Akalla och vad man kan göra med maskinerna
 * [Stockholms stads hitta utegym sida](https://motionera.stockholm/hitta-utegym/utegym/husby-gards-utegym)
 * maskiner från [www.iveoutdoor.com](https://www.iveoutdoor.com/en/ive/devices/)
 * [Fria bilder på utegymmet](https://commons.wikimedia.org/wiki/Category:Husby_g%C3%A5rd_utegym)
+* video problem med [Abdominal crunch som låser sig](https://youtube.com/shorts/n7WlQAbGcnU)
 
-![Tavla](https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Husby_utegym_2026_april_05.jpg/3840px-Husby_utegym_2026_april_05.jpg)
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Husby_utegym_2026_april_05.jpg/3840px-Husby_utegym_2026_april_05.jpg" alt="Tavla 1" width="500"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/bd/Husby_g%C3%A5rd_utegym_20260429.jpg/960px-Husby_g%C3%A5rd_utegym_20260429.jpg?_=20260429202920" alt="Tavla 2" width="300">
+
 
 ### 6. Balansbana
 
